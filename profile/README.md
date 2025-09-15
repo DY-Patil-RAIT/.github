@@ -32,7 +32,8 @@ We welcome contributions from **all RAITians** – beginners or pros! 💙
 
 ## ⚡ Community Note  
 This is an **unofficial initiative** run by students.  
-It’s meant to help, inspire, and grow together outside the classroom. ✨  
+It’s meant to help, inspire, and grow together outside the classroom. ✨
+Join our [Discord](https://discord.gg/JgZ6EaA7na)!!
 
 ---
 
