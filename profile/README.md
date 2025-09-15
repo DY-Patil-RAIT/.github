@@ -36,4 +36,4 @@ It’s meant to help, inspire, and grow together outside the classroom. ✨
 
 ---
 
-### 💙 Made with love by RAITians, for RAITians.  
+### 💙 Made with love by Rachit and Asmit, for RAITians.  
